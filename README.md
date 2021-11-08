@@ -1,2 +1,5 @@
-# tales-of-luminaria-cheats-codes-unlimited-pb-stone-hacks
-Tales of Luminaria Cheat codes unlimited free pb-stone hacks and tutorial global version
+# Tales of Luminaria Cheat codes unlimited free pb-stone hacks and tutorial global version
+
+Tales of Luminaria Cheat codes unlimited free pb-stone hacks and tutorial global version - As an initial tutorial, the introduction part of the story introduces various useful situations to get familiar with the basic combat and role enhancement mechanism of the game. In addition to text-based quick prompts, there are simple indicators to help you navigate the game easily. When you make progress after a series of missions and battles, you will unlock some additional game modes, which will be briefly described before you fight such battles. As there will be several items and functions, it may be a little complex for relatively new RPG players. Highlighting each item and function will provide some useful information, as well as some available guides, which you can read by clicking the question mark icon on some windows. Increasing your battle level or BR is basically an endless struggle, but when it comes to strategy, considering the actual effect and gain of your equipment and cards, there should be a point. It may be better to reduce br slightly. tales of luminaria characters tales of luminaria gacha
+
+<a href="https://watermod.icu/tales-of-luminaria/">view here</a>
